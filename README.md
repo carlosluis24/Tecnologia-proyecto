@@ -8,4 +8,5 @@ Muchos adolescentes creen que es importante esperar hasta que estén preparados 
 No hay nada malo si decides esperar. No todas las personas tienen relaciones sexuales.
 
 ##¿por que tenemos que esperar para tener relaciones sexuales? 
+
 Aproximadamente la mitad de los adolescentes en los Estados Unidos nunca han tenido relaciones sexuales. Si decides esperar, planifica con anticipación cómo vas a decir que no para que se entienda claramente. Mantente alejado de las situaciones que puedan conducir a las relaciones sexuales, como por ejemplo, estar a solas con alguien que te ha estado presionando o que consumió alcohol o drogas. Si tu pareja no respalda tu decisión de esperar, tal vez no sea la persona adecuada para ti.
