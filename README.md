@@ -12,4 +12,5 @@ No hay nada malo si decides esperar. No todas las personas tienen relaciones sex
 Aproximadamente la mitad de los adolescentes en los Estados Unidos nunca han tenido relaciones sexuales. Si decides esperar, planifica con anticipación cómo vas a decir que no para que se entienda claramente. Mantente alejado de las situaciones que puedan conducir a las relaciones sexuales, como por ejemplo, estar a solas con alguien que te ha estado presionando o que consumió alcohol o drogas. Si tu pareja no respalda tu decisión de esperar, tal vez no sea la persona adecuada para ti.
 
 ##cuales son los beneficios del sexo 
+
 Tener una vida sexual sana es bueno para ti física y emocionalmente. El sexo te puede ayudar a conectarte con otra persona, y el placer sexual tiene muchos beneficios para la salud, ya sea que tengas pareja o no. Cuando tienes un orgasmo, tu cuerpo produce una sensación de bienestar de forma natural. Tu cuerpo libera endorfinas, que son las hormonas que bloquean el dolor y que te hacen sentir bien.
