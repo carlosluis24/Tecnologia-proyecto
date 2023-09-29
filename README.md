@@ -34,3 +34,6 @@ puede ayudar a tener una vida más larga
 No existe una cantidad de sexo que sea “normal”. Todos somos diferentes. La frecuencia con la que tienes sexo depende de muchas cosas, por ejemplo, de si tienes pareja, de otras cosas que estén pasando en tu vida y de la intensidad de tu deseo sexual (las ganas de tener sexo).
 
 Las personas tienen deseos sexuales diferentes. Tu propio deseo sexual puede cambiar por cosas como el estrés, los medicamentos que tomes y otros factores físicos, emocionales o relacionados con tu estilo de vida. Algunas personas desean tener sexo todos los días o más de una vez por día, y otras no sienten ganas casi nunca. Las personas que no sienten ningún tipo de atracción sexual por nadie se llaman a sí mismas “asexuales”
+##conclucion 
+
+en conclucion la sexualidad es un tema que se debe tomar con seriedad ya que el tener una buena salud sexual y reproductiva puede traer muchos beneficios como el no tener un embarazo no deceando o no tener wje contraer alguna enfermedad de tranmicion sexual 
