@@ -35,6 +35,6 @@ No existe una cantidad de sexo que sea “normal”. Todos somos diferentes. La 
 
 Las personas tienen deseos sexuales diferentes. Tu propio deseo sexual puede cambiar por cosas como el estrés, los medicamentos que tomes y otros factores físicos, emocionales o relacionados con tu estilo de vida. Algunas personas desean tener sexo todos los días o más de una vez por día, y otras no sienten ganas casi nunca. Las personas que no sienten ningún tipo de atracción sexual por nadie se llaman a sí mismas “asexuales”
 
-##conclucion 
+##conclusion
 
-en conclucion la sexualidad es un tema que se debe tomar con seriedad ya que el tener una buena salud sexual y reproductiva puede traer muchos beneficios como el no tener un embarazo no deceando o no tener wje contraer alguna enfermedad de tranmicion sexual 
+en conclusion la sexualidad es un tema que se debe tomar con seriedad ya que el tener una buena salud sexual y reproductiva puede traer muchos beneficios como el no tener un embarazo no deceando o no tener que contraer alguna enfermedad de transmision sexual 
